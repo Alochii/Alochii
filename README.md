@@ -1,0 +1,4 @@
+- Hi, I’m @Alochii !
+- Aspiring software engineer that just wants to make stuff
+- 💞I’m looking to collaborate on any project i can be helpful on ^^
+- you can reach me at : Alimahfoud72@gmail.com
